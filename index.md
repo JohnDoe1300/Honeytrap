@@ -1,4 +1,9 @@
 ## Honeytrap
+[回到主页](https://boheme130.github.io/Fiction.git.io/)
+
+![avatar](https://m.media-amazon.com/images/I/41p8IxKfY8L.jpg)
+<br>
+<br>
 
 作品：Honeytrap <br>
 作者：Aster Glenn Gray <br>
